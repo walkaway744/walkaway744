@@ -5,6 +5,7 @@
 - 📫 How to reach me tony@tonylutz.net
 - 😄 Pronouns: ha, ha, ha !!!
 - ⚡ Fun fact: Patented an idea in 2002 # 6,445,188 -- Intelligent, self-monitoring AC Power Plug
+- 
 ================
 I joined to look for the answer to a post on the Jppmla Forum in
 The menu is too wide
